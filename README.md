@@ -8,6 +8,8 @@
 
 ### NOVEMBER
 
+[Refusals of November 2025](./notes/november)
+
 Updated on `November 28th`
 
 `2` refusals
