@@ -8,11 +8,11 @@
 
 ### NOVEMBER
 
-[Refusals of November 2025](./notes/november)
+👉[Refusals of November 2025](./notes/november)
 
 Updated on `November 28th`
 
-`2` refusals
+`2` refusals noted  down
 
 ## ALL THE GOODNESS IN HEART, BLESSING EVERY JOB SEEKERS WITH RESPONSIBILITIES ON SHOUDERS
 ![ALL THE GOODNESS IN HEART](./assets/20251128/MVIMG_20251127_093835.jpg)
