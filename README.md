@@ -12,4 +12,9 @@ Updated on `November 28th`
 
 `2` refusals
 
+## ALL THE GOODNESS IN HEART, BLESSING EVERY JOB SEEKERS WITH RESPONSIBILITIES ON SHOUDERS
 ![ALL THE GOODNESS IN HEART](./assets/20251128/MVIMG_20251127_093835.jpg)
+
+### Images Copyrights Disclaimer
+
+Private Images in This Repository - All rights reserved. Unauthorized use, reproduction, or distribution is prohibited.
