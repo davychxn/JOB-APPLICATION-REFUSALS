@@ -27,7 +27,7 @@ Updated on `November 28th`
 
 1. Right click and click `Save image as...` in Context Menu to save
 2. Go to Google Translate: [Google Translate](https://translate.google.com/?op=images)
-3. Click the blue `Choose your files` button to upload
+3. Click the `Choose your files` button in Blue to upload
 4. Select your target language
 
 ## ALL THE GOODNESS IN HEART, BLESSING EVERY JOB SEEKERS WITH RESPONSIBILITIES ON SHOUDERS
